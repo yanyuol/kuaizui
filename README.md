@@ -8,7 +8,7 @@ sing-box安卓手机端订阅导入教程：https://youtu.be/5tMvKsBOQQ0
 
 其他客户端教程制作中！！！！
 
-我的博客快嘴科技：kkzui.com
+我的博客快嘴科技：https://kkzui.com/
 
 我的网盘分享站：https://v2ray.kkzui.com/
 
